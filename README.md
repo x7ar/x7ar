@@ -1,4 +1,4 @@
-# Hello, I'm Suhaib Alothman 👋
+# Hello, I'm 7ar 👋
 
 ## 🙆🏻‍♂️ About Me
 I am 7ar, I am 17 years old, I'm interested in programming
